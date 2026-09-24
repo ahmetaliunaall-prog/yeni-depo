@@ -8,7 +8,7 @@ Bu depo, `npx wrangler deploy` komutuyla dağıtılacak bir Cloudflare Worker ve
 
 1. Cloudflare Workers Builds içinde GitHub’daki `ahmetaliunaall-prog/yeni-depo` deposunu bağla.
 2. Build komutunu boş bırak; ek paket kurulumu veya derleme adımı gerekmez. Deploy komutu `npx wrangler deploy` olsun.
-3. Kök dizindeki `wrangler.toml`, Worker giriş noktasını, statik varlıkları ve Supabase proje URL’si ile publishable anahtarı tanımlar. `.assetsignore` yalnızca site için gereken dosyaların yayımlanmasını sağlar.
+3. Kök dizindeki `wrangler.toml` (Worker adı `yeni-depo1`), Worker giriş noktasını, statik varlıkları ve Supabase proje URL’si ile publishable anahtarı tanımlar. `.assetsignore` yalnızca site için gereken dosyaların yayımlanmasını sağlar.
 4. Publishable anahtar tarayıcı uygulamaları için tasarlanmıştır ve herkese açık olabilir; erişimi RLS politikaları sınırlar. Secret/service-role anahtarlarını Cloudflare’a veya GitHub’a koyma.
 5. Turnstile kullanacaksan `TURNSTILE_SITE_KEY` değerini Worker değişkenlerine, `TURNSTILE_SECRET_KEY` değerini Supabase Edge Function secrets içine ekle. Turnstile isteğe bağlıdır.
 6. İlk dağıtımdan sonra oluşan Workers alan adını Supabase Edge Function’ın izinli kaynak yapılandırmasına ve veritabanındaki site-origin izin listesine ekle. Supabase Auth → URL Configuration bölümünde alan adını Site URL ve gereken Redirect URLs listesine de ekle.
