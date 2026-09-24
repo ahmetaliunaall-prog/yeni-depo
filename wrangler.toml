@@ -6,7 +6,7 @@ workers_dev = true
 [assets]
 directory = "."
 binding = "ASSETS"
-run_worker_first = ["/api/*", "/sitemap.xml"]
+run_worker_first = ["/api/*", "/sitemap.xml", "/robots.txt", "/admin"]
 
 [vars]
 SUPABASE_URL = "https://ztkopywelwximjiopdci.supabase.co"

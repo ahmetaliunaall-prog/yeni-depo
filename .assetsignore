@@ -1,7 +1,13 @@
 /.git
 /.git/**
+**/.git
+**/.git/**
 /.wrangler
 /.wrangler/**
+**/.wrangler
+**/.wrangler/**
+.env
+.env.*
 .env.example
 .gitignore
 .assetsignore
