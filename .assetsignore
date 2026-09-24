@@ -1,3 +1,10 @@
+/.git
+/.git/**
+/.wrangler
+/.wrangler/**
+.env.example
+.gitignore
+.assetsignore
 README.md
 wrangler.toml
 worker.js
