@@ -1,1 +1,37 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×^ºN‹Z–‹­¦ëeŠw¬ÔŒ¡µ•Ğ±¤ƒq¹…°ƒŠP­§}¥Í•°¡Õ­Õ¬…Ë}¥Ù¤4(4)e…çÅµ±…¹·Ç|µ•Ñ¥¹±•É¤Ù”…É‡}ÓÅÉµ„¹½Ñ±…ËÅ»ÄƒÙ¹”ƒŸÅ­…É…¸°SñÉ¯”Ù”µ½‰¥°ƒÙ¹•±¥­±¤­§}¥Í•°Í¥Ñ”¸É…çñè‰Ô‘•Á½‘„ÏÅ›ÅÉ‘…¸­ÕÉÕ±‘Ôìµ•ÙÕĞMÕÁ…‰…Í”ÁÉ½©•Í¥¹”•­±•µ•±¤Ù”Ù•É¤­½ÉÕåÕÔ‰§¥µ‘”‰‡}±…»ÅÈ¸4(4(ŒŒ±½Õ‘™±…É”]½É­•ÉÌ‘‡ÅÓÅ·Ä4(4)	Ô‘•Á¼°¹ÁàİÉ…¹±•È‘•Á±½å€­½µÕÑÕå±„‘‡ÅÓÅ±……¬‰¥È±½Õ‘™±…É”]½É­•ÈÙ”ÍÑ…Ñ¥¬Ù…É³Å­±…È½±…É…¬å…ÃÅ±…¹“ÅËÅ±·Ç}ÓÅÈ¸4(4(Ä¸±½Õ‘™±…É”]½É­•ÉÌ	Õ¥±‘Ì§¥¹‘”¥Ñ!Õ‹Še‘…­¤…¡µ•Ñ…±¥Õ¹……±°µÁÉ½œ½å•¹¤µ‘•Á½€‘•Á½ÍÕ¹Ô‰‡}±„¸4(È¸	Õ¥±­½µÕÑÕ¹Ô‰¿|‹ÅÉ…¬ì•¬Á…­•Ğ­ÕÉÕ±ÕµÔÙ•å„‘•É±•µ”…“Å·Ä•É•­µ•è¸•Á±½ä­½µÕÑÔ¹ÁàİÉ…¹±•È‘•Á±½å€½±ÍÕ¸¸4(Ì¸/Ù¬‘¥é¥¹‘•­¤İÉ…¹±•È¹Ñ½µ±€€¡]½É­•È…“Äå•¹¤µ‘•Á¼Å€¤°]½É­•È¥É§|¹¿®º¶‰ËkºwµçUĞ…¤µ…ÍÍ¥ÍÑ…¹Ñ€§}±•Ù¥¹”¥‘•Èì•µ¥¹¤…¹…¡Ñ…ËÄÑ…É…çÅÅå„ŸÙ¹‘•É¥±µ•è¸4(´ƒÁ±•Ñ§}¥´°½¹…ä…±…É…¬Ù”­§}¥Í•°%@Í…­±…µ…‘…¸½¹Ñ…Ğµ¥¹Ñ…­•€§}±•Ù¥¹”¥‘•È¸4(´M¥Ñ”¡Õ­Õ­¤‘…»Ç}µ…¹³Å¬Ù•å„­§}¥å”ƒÙé•°¡Õ­Õ­¤ŸÙËó|ÍÕ¹µ…è¸4(4(ŒŒe…ÃÄ4(4(´¥¹‘•à¹¡Ñµ±€°…ÍÍ•ÑÌ½Í¥Ñ”¹ÍÍ€°…ÍÍ•ÑÌ½Í¥Ñ”¹©Í€è¡…±­„‡ŸÅ¬Í¥Ñ”Ù”çÙ¹•Ñ¥´ÕåÕ±…µ…ÏÄ¸4(´İ½É­•È¹©Í€èMÕÁ…‰…Í”¥ÍÑ•µ¤…å…ËÅ»ÄÙ”Í¥Ñ•µ…ÃŠe¤ÍÕ¹…Èì‘§}•È¥ÍÑ•­±•É¤ÍÑ…Ñ¥¬Ù…É³Å¬­…Ñµ…»Å¹„…­Ñ…ËÅÈ¸4(´İÉ…¹±•È¹Ñ½µ±€è]½É­•È¥É§}¤°ÍÑ…Ñ¥¬Ù…É³Å¬…å…É±…ËÄÙ”ÁÕ‰±¥ŒMÕÁ…‰…Í”‘—}§}­•¹±•É¤¸4(´ÍÕÁ…‰…Í”½µ¥É…Ñ¥½¹Í€è…¹³ÄÙ•É¥Ñ…‰…»Ä¥å¥±—}Ñ¥Éµ•±•É¤Ù”‘•µ¼­…çÅÑ±…ËÅ»Ä•É¤…³Å¹…‰¥±¥È‰§¥µ‘”…Ë}¥Ù±•µ”¸4(´Ñ•ÍÑÌ½Íµ½­”¹µ©Í€èå•É•°ÍÑ…Ñ¥¬‹ñÓñ¹³ñ¬‘•¹•Ñ¥µ±•É¤¸4(
+# Ahmet Ali Ãœnal â€” kiÅŸisel hukuk arÅŸivi
+
+YayÄ±mlanmÄ±ÅŸ metinleri ve araÅŸtÄ±rma notlarÄ±nÄ± Ã¶ne Ã§Ä±karan, TÃ¼rkÃ§e ve mobil Ã¶ncelikli kiÅŸisel site. ArayÃ¼z bu depoda sÄ±fÄ±rdan kuruldu; mevcut Supabase projesine eklemeli ve veri koruyucu biÃ§imde baÄŸlanÄ±r.
+
+## Cloudflare Workers daÄŸÄ±tÄ±mÄ±
+
+Bu depo, `npx wrangler deploy` komutuyla daÄŸÄ±tÄ±lacak bir Cloudflare Worker ve statik varlÄ±klar olarak yapÄ±landÄ±rÄ±lmÄ±ÅŸtÄ±r.
+
+1. Cloudflare Workers Builds iÃ§inde GitHubâ€™daki `ahmetaliunaall-prog/yeni-depo` deposunu baÄŸla.
+2. Build komutunu boÅŸ bÄ±rak; ek paket kurulumu veya derleme adÄ±mÄ± gerekmez. Deploy komutu `npx wrangler deploy` olsun.
+3. KÃ¶k dizindeki `wrangler.toml` (Worker adÄ± `yeni-depo1`), Worker giriÅŸ noktasÄ±nÄ±, statik varlÄ±klarÄ± ve Supabase proje URLâ€™si ile publishable anahtarÄ± tanÄ±mlar. `.assetsignore` yalnÄ±zca site iÃ§in gereken dosyalarÄ±n yayÄ±mlanmasÄ±nÄ± saÄŸlar.
+4. Publishable anahtar tarayÄ±cÄ± uygulamalarÄ± iÃ§in tasarlanmÄ±ÅŸtÄ±r ve herkese aÃ§Ä±k olabilir; eriÅŸimi RLS politikalarÄ± sÄ±nÄ±rlar. Secret/service-role anahtarlarÄ±nÄ± Cloudflareâ€™a veya GitHubâ€™a koyma.
+5. Turnstile kullanacaksan `TURNSTILE_SITE_KEY` deÄŸerini Worker deÄŸiÅŸkenlerine, `TURNSTILE_SECRET_KEY` deÄŸerini Supabase Edge Function secrets iÃ§ine ekle. Turnstile isteÄŸe baÄŸlÄ±dÄ±r.
+6. Ä°lk daÄŸÄ±tÄ±mdan sonra oluÅŸan Workers alan adÄ±nÄ± Supabase Edge Functionâ€™Ä±n izinli kaynak yapÄ±landÄ±rmasÄ±na ve veritabanÄ±ndaki site-origin izin listesine ekle. Supabase Auth â†’ URL Configuration bÃ¶lÃ¼mÃ¼nde alan adÄ±nÄ± Site URL ve gereken Redirect URLs listesine de ekle.
+7. HTTPS Ã¼zerinden herkese aÃ§Ä±k iÃ§erik, yÃ¶netici giriÅŸi, iletiÅŸim formu ve medya yÃ¼klemeyi kontrol et.
+
+## AHMET â€” AHMETALIUNAL.COM.TR BAÄLAMA
+
+Cloudflare Workers â†’ `yeni-depo1` â†’ Settings â†’ Domains & Routes bÃ¶lÃ¼mÃ¼nden `ahmetaliunal.com.tr` alan adÄ±nÄ± bu Workerâ€™a ekle. Cloudflareâ€™Ä±n gÃ¶sterdiÄŸi DNS kayÄ±tlarÄ±nÄ± kullan; A/CNAME deÄŸerlerini elle tahmin etme. Alan adÄ± aÃ§Ä±ldÄ±ktan sonra Supabase Auth URL Configuration iÃ§indeki Site URL ve Redirect URLs deÄŸerlerini gÃ¼ncelle. Canonical, sitemap ve robots adresleri istek alan adÄ±na gÃ¶re Ã¼retilir; farklÄ± bir canonical tercih edilirse Admin â†’ Site ayarlarÄ± iÃ§indeki site adresini kullan.
+
+Bu proje Workers yapÄ±landÄ±rmasÄ± kullanÄ±r. Cloudflare Pages projesine daÄŸÄ±tÄ±lacaksa Pages iÃ§in ayrÄ± bir proje ve `wrangler pages deploy` akÄ±ÅŸÄ± gerekir.
+
+## Ä°Ã§erik ve yetki
+
+- Herkese aÃ§Ä±k iÃ§erik yalnÄ±zca yayÄ±mlanmÄ±ÅŸ, silinmemiÅŸ ve demo olmayan kayÄ±tlarla sÄ±nÄ±rlanÄ±r.
+- YÃ¶netim Supabase Auth kullanÄ±r; `profiles.role = admin` ayrÄ±ca doÄŸrulanÄ±r. Var olan iki yÃ¶netici korunmuÅŸtur.
+- AI taslaklarÄ± mevcut `ai-assistant` iÅŸlevine gider; Gemini anahtarÄ± tarayÄ±cÄ±ya gÃ¶nderilmez.
+- Ä°letiÅŸim, onay alarak ve kiÅŸisel IP saklamadan `contact-intake` iÅŸlevine gider.
+- Site hukuki danÄ±ÅŸmanlÄ±k veya kiÅŸiye Ã¶zel hukuki gÃ¶rÃ¼ÅŸ sunmaz.
+
+## YapÄ±
+
+- `index.html`, `assets/site.css`, `assets/site.js`: halka aÃ§Ä±k site ve yÃ¶netim uygulamasÄ±.
+- `worker.js`: Supabase istemci ayarÄ±nÄ± ve sitemapâ€™i sunar; diÄŸer istekleri statik varlÄ±k katmanÄ±na aktarÄ±r.
+- `wrangler.toml`: Worker giriÅŸi, statik varlÄ±k ayarlarÄ± ve public Supabase deÄŸiÅŸkenleri.
+- `supabase/migrations`: canlÄ± veritabanÄ± iyileÅŸtirmeleri ve demo kayÄ±tlarÄ±nÄ± geri alÄ±nabilir biÃ§imde arÅŸivleme.
+- `tests/smoke.mjs`: yerel statik bÃ¼tÃ¼nlÃ¼k denetimleri.
