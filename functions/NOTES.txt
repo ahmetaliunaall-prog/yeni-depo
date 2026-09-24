@@ -1,0 +1,2 @@
+Cloudflare Pages runtime values are set in the Pages dashboard, never committed.
+See README.md for the required public Supabase URL and publishable key.
